@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @DubgxTran27
+- 👋 Hi, I’m @DungxTran27
 - 👀 I’m interested in freedom
 - 🌱 I’m currently learning new things
 - 💞️ I’m looking to achieve more knowlegde in the future
